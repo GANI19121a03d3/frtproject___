@@ -47,4 +47,3 @@
 
 ![Screenshot (283)](https://user-images.githubusercontent.com/93095434/173232506-3fdfcd4f-57d7-4e94-8ddc-acf13b8c4a6d.png)
 
-![Screenshot (287)](https://user-images.githubusercontent.com/93095434/173232504-444365bd-cab3-4894-b1ae-1f7d55f57ae4.png)
